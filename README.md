@@ -1,3 +1,3 @@
-ven/gill white any prns + any fish related neos
-dni carson fans ahhhh!!! idk thats it
-txti.es/smallant1 for more info
+ven/gill white mirror prns + glub/poll
+no dni if i dislike you i will GET you
+i like jrwi and hades and nintendo :p
